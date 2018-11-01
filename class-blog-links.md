@@ -15,3 +15,4 @@
 * [Skyler](https://bigtineconsulting.wordpress.com/)
 * [Lindsey](https://whatsthedealwithdiets.wordpress.com/)
 * [Colton](fishinginmissouriblog.wordpress.com)
+* [Autumn](https://wordpress.com/view/theinspirationpool.home.blog)
